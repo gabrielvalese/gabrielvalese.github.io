@@ -3,7 +3,7 @@
 Meu nome é **Gabriel Vinicius Machado Maciel Valese** e tenho 15 anos.
 Estudo no [IFPR](https://ifpr.edu.br/) de Pinhais, e meu objetivo com o curso é aprender o máximo que conseguir e me formar preparado para o mercado de trabalho.   
 
-![Foto do meu ídolo](https://s2-ge.glbimg.com/yIcLay46CjYzN3rYaTMoVU3yDf0=/1200x/smart/filters:cover%28%29:strip_icc%28%29/i.s3.glbimg.com/v1/AUTH_bc8228b6673f488aa253bbcb03c80ec5/internal_photos/bs/2022/E/H/KrKNwMTHAiA2EPCOwCmw/whatsapp-image-2022-09-20-at-17.36.10.jpeg)
+
 
 ### Hobbies
  Meus hobbies favoritos são ouvir música, caminhar a toa (ou, às vezes, andar de bicicleta sem um trajeto estabelecido); ouvir música, ler e estudar (temas que me interessam, é claro). Caminhar é uma forma excelente de relaxar, deixando seus problemas e focando apenas no que está ao seu redor - como um expectador da vida real -.  
