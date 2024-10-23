@@ -15,10 +15,16 @@ Ler e ouvir música são autoexplicativos, mas meus livros favoritos que li esse
 
 ## Rotinas
 
-Eu faço algumas atividades ao longo da semana: nos dias de semana pela manhã, tenho aula. À tarde, tenho academia às segundas, terças, quintas e sextas e pela noite, tenho catequese às quartas. No domingo pela manhã, frequento o Centro de Estudos Espíritas Francisco de Assis ([CEEFA](https://www.ceefa.org.br/)) - frequento pela curiosidade, apenas.
+Eu faço algumas atividades ao longo da semana: nos dias de semana pela manhã, tenho aula. À tarde, tenho academia às segundas, terças, quintas e sextas e pela noite, tenho catequese às quartas. No domingo pela manhã, frequento o Centro de Estudos Espíritas Francisco de Assis ([CEEFA](https://www.ceefa.org.br/)) - frequento pela curiosidade, apenas. Além disso, ajudo na administração de uma empresa dos meus pais chamada [INTREPEDS](https://intrepeds.com.br/) nas redes sociais.
 
 
+## Vai Corinthians!
+![enter image description here](https://todopoderosotimao.com.br/imagens/curiosidades/sao_jorge.jpg)
 
+Meu time do coração é o Corinthians. Meu pai que me ensinou a torcer para esse time, que tenho tanta paixão e nostalgia. Lembro dos bons momentos torcendo com meu pai e assistindo o jogo com ele.
 
+## Considerações finais
+
+Creio que essa seja uma boa introdução de quem eu seja (ou de quem acredito ser). Estarei sempre construindo novos trilhos para eu poder encher cada vez mais esse "blog" =).
  
  
